@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @aymen0770
-- insta : @omega_0770
+- 👋 Hi, I’m Aymen
+- insta : @aymen_mk7
 - Welcome y Nmi
 
 <!---
